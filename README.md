@@ -1,8 +1,6 @@
-[![](https://thumbs.gfycat.com/ActualSoggyGermanshorthairedpointer.webp)](https://github.com/AndreiD/)
+[![](https://raw.githubusercontent.com/AndreiD/AndreiD/main/githubgif.gif)](https://github.com/AndreiD/)
 
 ![Andrei's Github Stats](https://github-readme-stats.vercel.app/api?username=AndreiD&count_private=true&show_icons=true&theme=light)
-
-
 
 ### Hi there 👋
 
