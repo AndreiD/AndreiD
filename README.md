@@ -8,4 +8,4 @@
 
 - 🔭 I’m currently working on Synthetic Bonds
 - 🌱 I’m currently learning Math
-- 📫 How to reach me: https://keybase.io/andyx
+- 📫 How to reach me: telegram @andyxyz1
