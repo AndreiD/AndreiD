@@ -5,5 +5,5 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working on Synthetic Bonds
-- 🌱 I’m currently learning Math
+- 🌱 I’m currently learning Greek
 - 📫 How to reach me: telegram @andyxyz1
